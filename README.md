@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @iHaroro
+- 👀 I’m interested in PS5 games
+- 🌱 I’m currently learning Japanese 
